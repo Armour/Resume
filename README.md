@@ -1,3 +1,3 @@
 # Resume
 ---
-My resume (to be continue...)
+My resume and cover letter
